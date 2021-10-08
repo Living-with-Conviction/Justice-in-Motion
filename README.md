@@ -8,7 +8,7 @@ If people get behind in their payments they can be arrested.
 </p>
 
 <p>
-  This debt criminalizes poverty, keeping people “shackled” to the criminal justice system for life.
+  This debt criminalizes poverty, keeping people shackled to the criminal justice system for life.
 </p>
 
 <p>  
